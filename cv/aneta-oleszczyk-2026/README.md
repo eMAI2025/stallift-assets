@@ -16,16 +16,25 @@ Przez blisko dekadę związana z GEODIS Poland, gdzie odpowiadała za procesy ad
 
 Łączy wysoką dyscyplinę operacyjną z bardzo dobrą organizacją pracy, samodzielnością, odpowiedzialnością i skutecznością działania pod presją czasu. W relacjach z kontrahentami koncentruje się na diagnozie rzeczywistej przyczyny problemu i doprowadzeniu sprawy do rozwiązania.
 
+## Wyróżniki profilu
+
+- **15+ lat doświadczenia zawodowego** w logistyce, administracji, operacjach i obsłudze biznesowej.
+- **Blisko 9 lat w GEODIS Poland** w międzynarodowym środowisku logistycznym.
+- **Port & Terminal Operations** - praca w środowisku terminalowym o dużym natężeniu ruchu, z setkami osób obecnych równolegle na terenie terminalu oraz stale zmieniającymi się kierowcami wielu firm i narodowości.
+- **Credit Control & Debt Collection** - monitoring należności, diagnoza źródeł opóźnień i bezpośrednia komunikacja z kontrahentami; ok. **95% skuteczności w doprowadzaniu zaległych płatności do uregulowania**.
+- **Team Leadership** - organizacja pracy kilkuosobowych zespołów, delegowanie zadań i zarządzanie priorytetami.
+
 ## Kluczowe kompetencje
 
-- **Operations & Administration** - koordynacja procesów operacyjnych i administracyjnych.
-- **International Logistics & Freight Forwarding** - współpraca z armatorami, przewoźnikami i klientami.
-- **Port & Terminal Operations** - koordynacja obsługi kierowców i przewoźników w środowisku terminalowym o dużej skali i wysokiej zmienności operacyjnej.
-- **Credit Control & Debt Collection** - monitoring należności, bezpośrednia komunikacja z kontrahentami oraz ok. **95% skuteczności w doprowadzaniu zaległych płatności do uregulowania**.
-- **Team Leadership** - organizacja pracy kilkuosobowych zespołów, delegowanie zadań i zarządzanie priorytetami.
-- **Reporting & Documentation** - raportowanie, zestawienia, dokumentacja logistyczna, transportowa i kosztowa.
-- **Tender & Bid Support** - przygotowywanie ofert oraz dokumentacji przetargowej i konkursowej.
-- **Compliance & Confidentiality** - praca zgodnie z procedurami, zasadami etyki i wymaganiami dotyczącymi informacji wrażliwych.
+- Operations & Administration
+- International Logistics & Freight Forwarding
+- Port & Terminal Operations
+- Credit Control & Debt Collection
+- Team Leadership
+- Stakeholder & Carrier Coordination
+- Reporting & Documentation
+- Tender & Bid Support
+- Compliance & Confidentiality
 
 ---
 
@@ -42,7 +51,12 @@ Przez blisko dekadę związana z GEODIS Poland, gdzie odpowiadała za procesy ad
 - Koordynacja procesów związanych z obsługą transportu kolejowego.
 - Przygotowywanie raportów, zestawień i dokumentacji wspierającej procesy administracyjne i operacyjne.
 
-**Kontekst organizacji:** firma działająca na rynku kontenerowym od 1974 r.; prowadzi składowanie, serwis, remonty, sprzedaż i dzierżawę kontenerów. Jej place w Gdańsku i Gdyni mają łącznie ok. **75 000 m²** i pojemność ok. **12 000 TEU**, a infrastruktura obejmuje również bocznice kolejowe.
+**Kontekst organizacji:** firma działająca na rynku kontenerowym od 1974 r.; prowadzi składowanie, serwis, remonty, sprzedaż i dzierżawę kontenerów. Jej place w rejonie Trójmiasta mają łącznie ok. **75 000 m²**, pojemność ok. **12 000 TEU** i zaplecze kolejowe.
+
+**Kamień milowy w okresie zatrudnienia:** w październiku 2025 r. Radunia Containers poinformowała o podpisaniu **20-letniej umowy dzierżawy ponad 6 ha terenu w Gdańsku**, z bocznicą kolejową i lokalizacją ok. 5 minut od Baltic Hub. To potwierdzony kontekst rozwoju organizacji, w której Aneta obecnie pracuje.
+
+- [Radunia Containers - „Inwestujemy w długofalowy rozwój”, 16.10.2025](https://radunia-containers.com/inwestujemy-w-dlugofalowy-rozwoj/)
+- [Radunia Containers - profil, historia i skala infrastruktury](https://radunia-containers.com/o-firmie/)
 
 ### [GEODIS Poland Sp. z o.o.](https://geodis.com/pl-pl/o-nas)
 **Team Leader | Specjalistka ds. Administracji - North, East and Central Europe**  
@@ -55,7 +69,20 @@ Przez blisko dekadę związana z GEODIS Poland, gdzie odpowiadała za procesy ad
 - Przygotowywanie raportów i zestawień dla kierownictwa oddziału.
 - Organizacja pracy kilkuosobowego zespołu administracyjno-operacyjnego, delegowanie zadań i bieżące zarządzanie priorytetami.
 
-**Kontekst organizacji:** globalny operator transportowo-logistyczny. GEODIS podaje ok. **49 720 pracowników**, sieć obejmującą **166 krajów**, ponad **1 000 lokalizacji** i obrót **11,3 mld EUR** w 2024 r. W Polsce firma deklaruje ponad **1 500 pracowników**, ok. **40 oddziałów** i **16 magazynów**.
+**Kontekst organizacji:** GEODIS jest globalnym operatorem transportowo-logistycznym. Według oficjalnych danych grupa zatrudnia ok. **49 720 pracowników**, obsługuje sieć obejmującą **166 krajów**, ponad **1 000 lokalizacji** i osiągnęła **11,3 mld EUR obrotu w 2024 r.** W Polsce GEODIS podaje **40 oddziałów, ponad 1 500 pracowników, 16 magazynów i 300 000 m² powierzchni magazynowej**.
+
+### Wybrane sukcesy GEODIS Poland w okresie zatrudnienia
+
+Aneta była członkinią zespołu GEODIS Poland w okresie, w którym polska organizacja była wielokrotnie wyróżniana za jakość i efektywność operacyjną. Są to **osiągnięcia organizacji i jej zespołów**, a nie indywidualne nagrody kandydatki; stanowią jednak wiarygodny kontekst standardu środowiska, w którym pracowała przez niemal 9 lat.
+
+- **2018:** GEODIS Poland zajęło **3. miejsce** w badaniu „Logistics Operator of the Year”; informację tę potwierdza późniejszy komunikat GEODIS o nagrodzie w 2019 r.
+- **2019:** GEODIS Poland otrzymało **Silver Emblem Award - Logistics Operator of the Year 2019**. Oficjalny komunikat GEODIS wskazuje wprost na „hard work and commitment” zespołu w Polsce oraz określa nagrodę jako osiągnięcie firmy i jej pracowników.  
+  [Oficjalny komunikat GEODIS - Logistics Operator of the Year 2019](https://geodis.com/newsroom/press/geodis-poland-wins-logistics-operator-year-2019-silver-award)
+- **2023:** GEODIS Poland zostało wyróżnione przez **Castorama Poland za wysoki poziom usług i efektywność operacyjną** przy realizacji projektów logistycznych.  
+  [GEODIS - Award for operational efficiency in Poland](https://geodis.com/ca-en/newsroom/news/geodis-wins-award-operational-efficiency-poland)
+- **2024:** GEODIS Poland otrzymało tytuł **Lider Logistyki 2024 w kategorii „Skalowalność biznesu”** w programie Operator Logistyczny Roku.  
+  [Gala Logistyki - Liderzy Logistyki 2024](https://www.galalogistyki.pl/post/oto-liderzy-logistyki-2024)
+- [GEODIS - oficjalny profil i aktualna skala działalności w Polsce](https://geodis.com/pl-pl/o-nas)
 
 ### [Wiking - Agencja Ochrony Mienia i Konwoje Witold Stochmiałek](https://wiking.pl/o-nas/)
 **Kierownik działu handlowego**  
@@ -67,7 +94,9 @@ Przez blisko dekadę związana z GEODIS Poland, gdzie odpowiadała za procesy ad
 - Kontakty z klientami instytucjonalnymi i indywidualnymi.
 - Wsparcie zespołu sprzedażowego oraz kontrola terminowości realizowanych działań.
 
-**Kontekst organizacji:** regionalna firma ochrony działająca od 1993 r. na Pomorzu i w innych częściach Polski; według informacji firmy obsługuje **ponad 2 000 klientów** z sektorów m.in. finansowego, przemysłowego, handlowego, muzealnego i publicznego.
+**Kontekst organizacji:** firma działa od 1993 r. i według własnych informacji obsługuje obecnie ponad **2 000 klientów** z sektorów finansowego, przemysłowego, handlowego, muzealnego i publicznego; posiada m.in. status SUFO i certyfikowaną kancelarię tajną.
+
+- [Wiking - oficjalny profil firmy](https://wiking.pl/o-nas/)
 
 ### [Komenda Miejska Policji w Sopocie - Sekcja Kryminalna](https://sopot.policja.gov.pl/)
 **Pracownik administracyjny - zastępstwo**  
@@ -77,8 +106,6 @@ Przez blisko dekadę związana z GEODIS Poland, gdzie odpowiadała za procesy ad
 - Realizacja zadań wymagających dokładności, odpowiedzialności i zachowania poufności informacji.
 - Praca zgodnie z obowiązującymi procedurami i przepisami.
 
-**Kontekst organizacji:** miejska jednostka Policji odpowiedzialna za bezpieczeństwo i porządek publiczny na terenie Sopotu, obejmująca m.in. pion kryminalny, dochodzeniowo-śledczy, prewencji i ruchu drogowego.
-
 ---
 
 ## Wykształcenie
@@ -87,12 +114,8 @@ Przez blisko dekadę związana z GEODIS Poland, gdzie odpowiadała za procesy ad
 **Logistyka**  
 Specjalizacja: **Logistyka i Spedycja**
 
-**Kontekst uczelni:** gdyńska filia działa od 2008 r. Obecnie należy do sieci Uniwersytetów WSB Merito obecnych w **11 miastach Polski**; uczelnia podaje, że z jej oferty skorzystało łącznie ponad **600 000 studentów**. Gdyński budynek ma ok. **3 000 m²**, 18 sal dydaktycznych i 8 laboratoriów.
-
 ### [Liceum Ekonomiczne w Sopocie - historyczna linia obecnego Zespołu Szkół Technicznych](https://zstsopot.edupage.org/about/?subpage=1)
 **Technik Ekonomista**
-
-**Kontekst szkoły:** szkoła należy do jednej z najstarszych tradycji szkolnictwa ekonomicznego na Wybrzeżu. W 1983 r. Liceum Ekonomiczne weszło w skład Zespołu Szkół Handlowych; w 2002 r. Liceum Ekonomiczne i Liceum Handlowe przekształcono w Technikum. Obecna placówka kontynuuje tę historię jako Zespół Szkół Technicznych w Sopocie.
 
 ---
 
@@ -111,4 +134,4 @@ Specjalizacja: **Logistyka i Spedycja**
 
 ---
 
-*Wersja cyfrowa CV przygotowana jako uzupełnienie dokumentu PDF/Word. Nazwy firm i szkół są aktywnymi odsyłaczami do oficjalnych stron, na których można sprawdzić profil i skalę działalności organizacji.*
+*Wersja cyfrowa CV rozszerza dokument PDF/Word o aktywne źródła: oficjalne strony pracodawców i szkół, skalę organizacji oraz wybrane, zweryfikowane osiągnięcia firm przypadające na okres zatrudnienia. Osiągnięcia organizacji są przedstawione jako kontekst pracy zespołowej, bez przypisywania kandydatce indywidualnego autorstwa nagród.*
